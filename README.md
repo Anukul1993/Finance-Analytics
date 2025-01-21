@@ -1,1 +1,1 @@
-[Financial Sales Data Analysis.pdf](https://github.com/user-attachments/files/18485267/Financial.Sales.Data.Analysis.pdf)
+![Image](https://github.com/user-attachments/assets/97b4d66c-2591-4921-9b6c-6620edf3cab4)
